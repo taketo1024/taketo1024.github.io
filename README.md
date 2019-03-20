@@ -1,0 +1,1 @@
+# taketo1024.github.io
